@@ -1,8 +1,8 @@
-Why do I do it? I’ve been asking myself that for a long time.
+_Why do I do it?_ I’ve been asking myself that for a long time.
 
 My footsteps echo in the hollow dark around me.
 
-What’s the point of my life? I don’t know that either.
+_What’s the point of my life?_ I don’t know that either.
 
 But I keep walking forward, deeper into the dark.
 
